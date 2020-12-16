@@ -13,6 +13,6 @@
 - 82 kg
 - born in Munich
 - fled to Berlin because of weird culture in hometown in 1999
-- in 2012 to 2014 I was based in Charlottesville, Virginia, USA while volunteering for and NGO, mostly in Peru and Guatemala.
+- 2012 to 2014 I was based in Charlottesville, VA, USA.
 
 
